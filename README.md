@@ -28,3 +28,11 @@ https://discord.gg/nm2kk22kg6
 <h4>Join our Discord and Message in #get-recoil-software channel</h4>
 
 https://youtu.be/UJnvWGMJcBI
+
+
+https://github.com/xdefiant-player/xdefiant-no-recoil/assets/172615774/7fc972ac-0798-4a2d-8474-419efceee845
+
+
+
+https://github.com/xdefiant-player/xdefiant-no-recoil/assets/172615774/9f8d06cf-7d7b-4259-812b-5b9a13c21633
+
