@@ -36,3 +36,13 @@ https://github.com/xdefiant-player/xdefiant-no-recoil/assets/172615774/7fc972ac-
 
 https://github.com/xdefiant-player/xdefiant-no-recoil/assets/172615774/9f8d06cf-7d7b-4259-812b-5b9a13c21633
 
+
+https://github.com/user-attachments/assets/2a4cbb5a-636c-47b4-b644-3776fbbe0b09
+
+
+
+https://github.com/user-attachments/assets/d4068c86-f8a0-4930-848f-16744af1b848
+
+
+
+
